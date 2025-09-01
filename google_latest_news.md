@@ -1,0 +1,6 @@
+# Googleニュース (更新: 2025-09-01 10:08 UTC)
+- [世田谷の切りつけ 羽田空港で逃走男性の身柄確保、殺人容疑で逮捕へ - 毎日新聞](https://news.google.com/rss/articles/CBMiaEFVX3lxTE56Qm54eXlOLXQyaVZ4X21rRnBzRmJqZmhKLXVSdVFXcExNVDFkOWhVMXRiNVgybUhrZS1JT1RtMWs0c3gxREgyTEtmdW90ZUZ3djNKOXBYR05wdXA1aGpIZU94NEtYLUVW?oc=5)
+- [上海協力機構の首脳会議 習主席演説 新興国や途上国と連携強化 - nhk.or.jp](https://news.google.com/rss/articles/CBMib0FVX3lxTE0tMU43NWtsUFVseWRnNElmcXhnckFDZXNPaHAwVFVxR0pJZVgyR0F3Yi1lcmRZdHJua3FyNHNpeTJmYVdPV2h0UzdXeHRfZG15MjhUY1c0RDRxelVWa1hSMEhkTkFqd2hqeWRHWGpHaw?oc=5)
+- [アフガン東部でＭ６．０、８００人死亡 複数の集落壊滅、救助難航 - 時事ドットコム](https://news.google.com/rss/articles/CBMiY0FVX3lxTE5UT25hUS1uYUxMQTlIRllXc204aHVsckprVklUd1RFUTZ1S3oydkVjY1c5N0tYVmZWcGx5Y1FQcmcwaDg5Y2RWYzY1Q24tb3Q4QjhBR2oyMmlkQmsxa0tzNEduRQ?oc=5)
+- [市街地のクマ「簡単に撃てない」 ハンターから不安の声 「緊急銃猟」巡り岩手県内 - 岩手日報](https://news.google.com/rss/articles/CBMiX0FVX3lxTE5TaWtHX241bnkydmxjc0VSRzhudzdWaUY2bEU4eGdFa0szcU5xejQ4RW9OTWlZdXMwTXNxdWhiSkZORWNzVW5IWjQ3WnVqS2lmd1Q3MGVjV2k0bE5YWnlv?oc=5)
+- [田久保真紀市長の不信任案を全会一致で可決 伊東市議会、刑事告発も - 朝日新聞](https://news.google.com/rss/articles/CBMiZ0FVX3lxTFB4Qi1WMDk4VWJtUTdXdDljMGNCTXBQd2FQeDNvVm4ydDliX3F3T3haOHA2RmQ0dXp0cTFjUllUTmJxbEhQUHU5RkRzSmZGa3RuU0dUcDVVV0d0bXNta0xmd0ZoT05iVFk?oc=5)
